@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently a Masters student <br>I am looking on a project to collaborate related to AI/ML<br>I am looking for help with finding aN end sem Internship <br>ask me about impossible ideas to make possible <br>Fun Fact about me is that I am a very quick learner <br>
+I am currently a Masters student <br>I am looking on a project to collaborate related to AI/ML<br>I am looking for help with finding an end sem Internship <br>Ask me about impossible ideas to make possible😉 <br>Fun Fact about me is that I am a very quick learner <br>
 
 
 ## 🌐 Socials:
